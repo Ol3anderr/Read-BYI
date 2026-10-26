@@ -1,6 +1,6 @@
    #  𝐛𝐲𝐢  #
 
- <img width="305" height="150" alt="めめめ  @mememe_illust  on X" src="https://github.com/user-attachments/assets/3c3174a9-f071-48f7-9f5a-069f828acad8" />  <img width="305" height="150" alt="1039909370232899136" src="https://github.com/user-attachments/assets/e198f763-6a7f-4408-aa42-8ea34c127d9c" />  <img width="305" height="150" alt="Pantalone _ Regrator" src="https://github.com/user-attachments/assets/7b8d360f-a9ea-4e66-bec9-929dc0cded22" />
+ <img width="300" height="150" alt="めめめ  @mememe_illust  on X" src="https://github.com/user-attachments/assets/3c3174a9-f071-48f7-9f5a-069f828acad8" />  <img width="300" height="150" alt="1039909370232899136" src="https://github.com/user-attachments/assets/e198f763-6a7f-4408-aa42-8ea34c127d9c" />  <img width="300" height="150" alt="Pantalone _ Regrator" src="https://github.com/user-attachments/assets/7b8d360f-a9ea-4e66-bec9-929dc0cded22" />
 
 _______________________________________________________________________________________________________________________________
 
